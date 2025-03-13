@@ -1,6 +1,6 @@
-# My Topic Google Doodle
+# My Topic - Google Doodle
 
-50+ words about your Google Doodle.
+I'm a Technical Communication major and it involves a lot of writing. This doodle shows the way I see writing in any form as deliberate art.
 
 ## Collage
 
